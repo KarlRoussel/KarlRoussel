@@ -46,4 +46,4 @@ L’entrepreneur magnétique est aussi celui qui **OSE**. Qui sort du mode prép
 
 > "Vendre avec le Cœur. Grandir avec la Foi. Multiplier avec l’IA."
 
-🕊️ ✝️ 💰
+🕊️ ✝️ 💰](https://www.opus.pro/?via=maximise)
